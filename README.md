@@ -1,7 +1,4 @@
 # Who Can Sponsor a Spouse or Partner for Canadian Permanent Residency 
-SEO-friendly blog article | Target audience: French-speaking Canadians and couples planning to settle in Canada | Brand: asraimmigration.ca
-
-# Who Can Sponsor a Spouse or Partner for Canadian Permanent Residency?
 
 Building a life together is an important goal for many couples, especially when one partner lives in Canada and the other lives abroad. Whether you are married, living together in a long-term relationship, or facing circumstances that prevent you from living in the same country, Canada's family sponsorship program may offer a pathway to permanent residency.
 
